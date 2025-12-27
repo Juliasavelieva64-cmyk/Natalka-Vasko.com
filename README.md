@@ -1,2 +1,2 @@
-# Natalka-Vasko.com
-Natalka Vasko
+# Natalia-Vasko.com
+Natalia Vasko
